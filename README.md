@@ -1,1 +1,1 @@
-Information Will be added soon
+On Project Worked Dachi Bregadze and Luka Danelia
